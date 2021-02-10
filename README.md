@@ -1,2 +1,0 @@
-# veebiraamistik
-veebiraamistiku kaust
